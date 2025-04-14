@@ -5,7 +5,7 @@
 - 🌱 I recently managed a team of multiple Data consultant in different projects
 - 👯 I’m looking to collaborate with new clients who are looking to optimize them Data usage and extracting useful insights
 - 💬 Lets discuss about youe Needs, Technologies, ways to resolve your issues 
-- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/abdelkader-kaddour-brahim-a54618111/) , [Mail](akaddourbrahim@gmail.com) .
+- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/abdelkader-kaddour-brahim-a54618111/) , akaddourbrahim@gmail.com .
 - 😄 Pronouns: He
 - ⚡ Fun fact: Do not hesitate
 
